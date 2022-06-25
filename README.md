@@ -62,7 +62,7 @@
 
 **Black Dog:** It doesn't have to be this way. Just give them the map. You know what it means if I give you the Spot.
 
-**Billy:** You woudln't give me the Black Spot?! Gahah!!
+**Billy:** You wouldn't give me... the Black Spot?! Gahah!!
 
 **Black Dog:** I'm sorry, but you don't give me any choice in this matter, do you know? So, I've [???] you of the power invested in me by our fellow pirates I must now present you with the Black Spot.
 
@@ -74,25 +74,25 @@
 
 **Black Dog:** Okay Billy
 
-**Billy:** Give me the Black Spot, really? If they want to serve a death summons on Billy Bones they'll have to send a far better man than Black Dog, the fools!
+**Billy:** "Give me the Black Spot", really? If they want to serve a death summons on Billy Bones they'll have to send a far better man than Black Dog, the fools!
 
 **Black Dog:** Hey, I felt a raindrop
 
 **Billy:** [*flying Billy Bones' noises*]
 
-**Black Dog:** You know, I almost belive you did that on purpose. Come on Billy, cut it off! Billy? Where are you?
+**Black Dog:** You know, I almost believe you did that on purpose. Come on Billy, cut it off! Billy? Where are you?
 
 **Billy:**
 
 **Black Dog:**
 
-**Billy:** Go away and leave me alone, Black Dog! Gaah!
+**Billy:** Go away and leave me alone, Black Dog! Gahuu!
 
-I'm tired of playing games with you Black Dog. You're never gonna get that map away from me this way so give up! I'll always be one jump ahead of you.
+**Billy:** I'm tired of playing games with you Black Dog. You're never gonna get that map away from me this way so give up! I'll always be one jump ahead of you.
 
 **Black Dog:** I kept you hoppin', didn't I? Now are you ready to turn over that treasure map?
 
-Alright Black Dog, here's your cursed treasure map!
+**Billy:** Alright Black Dog, here's your cursed treasure map!
 
 **Black Dog:** This is a bomb.
 
@@ -102,17 +102,17 @@ Alright Black Dog, here's your cursed treasure map!
 
 **Billy:** [??? 9:20]
 
-**Black Dog:** That statue is a very good likeness of old Billy Bones! I think Billy's nose is a little bit longer though. Billy can't stand being tickled. Now I wonder if this statue is ticklish. 
+**Black Dog:** That statue is a very good likeness of old Billy Bones! I think Billy's nose is a little bit longer though. Billy can't stand being tickled. Now I wonder if this statue is ticklish.
 
 **Billy:** Mhm-hmmm! Don't be foolish! Statues can't be ticklish. Mhm-hmmm!
 
-**Black Dog:** Oorh, I'll bet your hand is ticklish
+**Black Dog:** Oorh, I'll bet your hand is ticklish.
 
 **Billy:** I'm not ticklish! See!
 
-Oh no! The Black Spot! Gnohooohooooo...
+**Billy:** Oh no! The Black Spot! Gnohooohooooo...
 
-**Black Dog:** It was a pleasure seeing you again Billy, mmh mmh, now that you've got the Black Spot, I guess that completes our business expect for the funeral arrangements which I'll take care of for you.
+**Black Dog:** It was a pleasure seeing you again Billy, mmh mmh, now that you've got the Black Spot, I guess that completes our business except for the funeral arrangements which I'll take care of for you.
 
 **Billy:** Black Dog, you were my friend, how could you do this?
 
@@ -130,59 +130,59 @@ Oh no! The Black Spot! Gnohooohooooo...
 
 **Filipe:** You mean the Black Spot of doom? Sheer superstition!
 
-**Billy:** Think so? Well, listen : 20 men have died already. And all because of this. Captain Flint's treasure map!
+**Billy:** Think so? Well, listen: twenty men have died already. And all because of this. Captain Flint's treasure map!
 
 **Filipe:** A treasure map? Ridiculous!
 
-**Billy:** You think so, eh? You're to young to have heard of Captain Flint's treasure, buried on a secret planet.
+**Billy:** You think so, eh? You're to young to have heard about Captain Flint's fabulous treasure, buried on a secret planet.
 
-**Filipe:** And you have a treasure planet map?
+**Filipe:** And you have the treasure planet map?
 
-**Billy:** This is it Filipe. But it doesn't matter to me now, it's too late, they gave me the Black Spot and it's my duty as a conscienscious pirate to drop dead at once!
+**Billy:** This is it Filipe. But it doesn't matter to me now, it's too late, they gave me the Black Spot and it's my duty as a conscientious pirate to drop dead at once!
 
 **Filipe:** I can't believe it.
 
 **Billy:** No? Just watch this [*Billy Bones dying noises*]
 
-**Filipe:** I'll be damned! He wasn't kiddin'! I better report this to the commander.
+**Filipe:** I'll be damned! He wasn't kiddin'! I'd better report this to the commander.
 
-Ah! It must be those pirates!
+**Filipe:** Ah! It must be those pirates!
 
-**alling Commander Smollet! Please come in!
+**Filipe:** Calling Commander Smollett! Please come in!
 
-**Smollet:** *over audio transmission* This is Commander Smollet, come in Filipe
+**Smollett:** *over audio transmission* This is Commander Smollett, come in Filipe.
 
 **Filipe:** Commander, I must see you at once! It's about treasure planet, I have the map.
 
 ============
 
-**Smollet:** Come in! I'm Commander Smollet, what can I do for you?
+**Smollett:** Come in! I'm Commander Smollett, what can I do for you?
 
 **N°3:** A haircut. Just a trim. Nothing off the top and don't touch the sideburns, okay?
 
-**Smollet:** I'm not a barber, I'm the space fleet commander!
+**Smollett:** I'm not a barber, I'm the space fleet commander!
 
 **N°3:** Well, what do we have here? It looks like a sink! What a good place to get a treasure map in! HhhHHEllLPP! OOoOOooOH!
 
-**Smollet:** Mh, did you say treasure map?
+**Smollett:** Mh, did you say treasure map?
 
 **N°3:** Me? No! I haven't the slightest interest in buried treasure, nor am I interested in a young cadet named Filipe. Not even a teeny weeny little bit interested in him or his treasure map.
 
-**Smollet:** Then why did you come?
+**Smollett:** And why have you come?
 
 **N°3:** Erm, I want a haircut.
 
-**Smollet:** One haircut, coming up.
+**Smollett:** One haircut, coming up.
 
 **N°3:** AAAAAAAAAaaaAAAAaAAaAAH! OOooooooOOOOh! Waaaaaoooh!
 
 **Pigman:** Excuse me, I'd like a hamburger with ketchup and mustard and onions and tomato and lettuce and a chocolate milkshake.
 
-**Smollet:** Is that for here or to go?
+**Smollett:** Is that for here or to go?
 
 **Pigman:** I'd like to eat it here and take it with me too if possible. By the way, not that I'm interested, but does a young man named Filipe with a treasure map ever come in here?
 
-**Smollet:** Did I hear you say treasure map?
+**Smollett:** Did I hear you say treasure map?
 
 **Pigman:** Who, me? AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAH OOF OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOH!
 
@@ -190,68 +190,108 @@ Ah! It must be those pirates!
 
 **N°4:** Hello there! Can you help me? I'm blind as you can see!
 
-**Smollet:** So, you're a blind man hey? And what do you want, pray tell?
+**Smollett:** So, you're a blind man hey? And what do you want, pray tell?
 
 **N°4:** Well, what do you suggest?
 
-**Smollet:** A treasure map?
+**Smollett:** A treasure map?
 
 **N°4:** Yeah! ...I mean no! Not a treasure map. I haven't even the slightest interested in a treasure map. I wonder, could you tell me the time?
 
-**Smollet:** I'd be happy to! Mh mh mh. As you can see by my clock, it's 3.15.
+**Smollett:** I'd be happy to! Mh mh mh. As you can see by my clock, it's 3.15.
 
 **N°4:** That's not a clock, it's a barometer! Are you making fun of a poor blind man?
 
-**Smollet:** I was just testing you. Now would you mind standing on that red board over there?
+**Smollett:** I was just testing you. Now would you mind standing on that red board over there?
 
 **N°4:** Mmmmmmmmh you mean that green board! Sure I'll stand on it.
 
-**Smollet:** You have excellent color perception my friend, especially for a blind person.
+**Smollett:** You have excellent color perception my friend, especially for a blind person.
 
 **N°4:** Okay, I'm standing on it. Now what do you want me to do?
 
-**Smollet:** You've got to get up pretty early in the morning if you're going to try to fool me.
+**Smollett:** You've got to get up pretty early in the morning if you're going to try to fool me.
 
-**Filipe, you're cleared for landing at 7 - 3 port.
+**Smollett:** Filipe, you're cleared for landing at 7 - 3 port.
 
-**Filipe:** Commander Smollet, I have brought the map.
+**Filipe:** Commander Smollett, I have brought the map.
 
-**Smollet:** Mmmmh. Ah-Ha! Filipe, this is an authenthic star map. I shows the exact location of Captain Flint's fabulous [?? 16:42] but very pirate loot on a secret treasure planet. We've no time to waste. Filipe, we have to get to that treasure before those pirates do. They know we have the map and they'll be watching our every move, so we must proceed with absolute caution but with haste as well. We must assemble a crew immediatly. I'll be captain of course, and you can be the cabin boy.
+**Smollett:** Mmmmh. Ah-Ha! Filipe, this is an authenthic star map. It shows the exact location of Captain Flint's fabulous trove of buried pirate loot on a secret treasure planet. We've no time to waste. Filipe, we have to get to that treasure before those pirates do. They know we have the map and they'll be watching our every move, so we must proceed with absolute caution but with haste as well. We must assemble a crew immediately. I'll be captain of course, and you can be the cabin boy.
 
 **Long John:** [*evil laugh*] I have come to volunteer my services as your first mate commander.
 
-**Smollet:** And what is your name my good fellow?
+**Smollett:** And what is your name my good fellow?
 
-**Long John:** I am known as Long John Silver, commander Smollet. I have 15 years of space experience.
+**Long John:** I am known as Long John Silver, commander Smollett. I have 15 years of space experience.
 
-**Smollet:** Long John Silver, eh? I hereby appoint you first mate of the Espagnola.
+**Smollett:** Long John Silver, eh? I hereby appoint you first mate of the Hispaniola.
 
-**Long John:** At your service commander Smollet, hin hin.
+**Long John:** At your service commander Smollett, hin hin.
 
-**Smollet:** Very good then. We have a spaceship, commander, first mate and a cabin boy. All we need now is a crew.
+**Smollett:** Very good then. We have a spaceship, commander, first mate and the cabin boy. All we need now is a crew.
 
 **Long John:** Just leave that off to me, commander, I can round up a fine crew in no time whatever.
 
 ============
 
-**Smollet:** Handsomely done Long John! They look like an able space crew. Gezondheid! Attention! Prepare for launch into hyperspace.
+**Smollett:** Handsomely done Long John! They look like an able space crew. Gezondheid! Attention! Prepare for launch into hyperspace.
 
 ============
 
-**Narrator (Filipe):** The Espagnola is a fine ship. Soaring to endless stretches of deep space with little effort. There is no day or night in space, and the concept of time has little meaning. To us, time is just tedious[?], as little happens outside the routine of our serene [??19:18] through space. Most of the ship's functions are commanded by unfailable computers, and there is little for any of us to do except observe in case something goes wrong. I sometimes wish that something would go wrong, just to break the monotony.
+**Narrator (Filipe):** The Hispaniola is a fine ship. Soaring to endless stretches of deep space with little effort. There is no day or night in space, and the concept of time has little meaning. To us, time is just tedium, as little happens outside the routine of our serene sojourn through space. Most of the ship's functions are commanded by unfailable computers, and there is little for any of us to do except observe in case something goes wrong. I sometimes wish that something would go wrong, just to break the monotony.
 
 ============
 
-**Smollet:** Cabin boy report to the commander.
+**Smollett:** Cabin boy report to the commander.
 
-**Smollet:** *over speakers* Cabin boy report to the commander.
+**Smollett:** *over speakers* Cabin boy report to the commander.
 
-**Smollet:** Navigation engineer number one, watch the radiation level in the power drive.
+**Smollett:** Navigation engineer number one, watch the radiation level in the power drive.
 
 **Filipe:** Sir, cabin boy reporting as ordered, sir.
 
-**Smollet:** And my immortal(?) engineer, check the artificial gravity generator.
+**Smollett:** And my immortal(?) (environmental?) engineer, check the artificial gravity generator.
 
-**N°4:** I just checked it yesterday and it's still there commander Smollet!
+**N°4:** I just checked it yesterday and it's still there commander Smollett!
 
-[20:08]
+**N°3:** [???] is really normal, commander.
+
+**Smollett:** Computer program analyzer number one, check the whatchamacallit then the thingamajig and report.
+
+**N°1:** Okie dokie and hunky-dory commander. Whoop! Ha! Haha.
+
+**Smollett:** Commander's log aboard the starship Hispaniola. Stardate: 7-4-2-5. Destination: Treasure Planet. Estimated arrival: 8 days, 4 hours, 10 minutes and 5 seconds, give or take. All systems [???]. Everything functioning perfectly. It's another typical, boring day in space.
+
+**Black Dog:** Coming, coming, coming, coming, coming, coming. The battery appears to be going dead, commander.
+
+**Smollett:** Okay Filipe, assemble the crew immediately, emergency one!
+
+**N°2, N°3, N°4:** [*Bulgarian musical interlude*]
+
+**Smollett:** Filipe, find first mate Long John Silver and bring him to me [??? 22:29] urgent!
+
+**Parrot:** [*dying sounds*] I need electricity!
+
+**Parrot:** That's much better, eh!
+
+**N°3:** Alright who turned that blasted parrot back on?
+
+**Parrot:** Waaah! Villains! Waah! Scoundrels!
+
+**N°3:** Hey can you guys sing melancholy baby?
+
+**Long John:** I heard all that singing and dancing around you scum! You behaving like a bunch of rotten slacken(? 23:20) sailors.
+
+**Long John:** Now cut that out! Report on the condition of your circuitry?
+
+**N°2:** [*what the fuck* 23:27] If I only have all your mother, boys.
+
+**N°4:** Take my wife, please.
+
+**N°3:** Shave [??? 23:36] haircut, two bits!
+
+**N°2:** [??? 23:39]
+
+**Long John:** We are approaching a magnetic storm! I know that can be rough on bio-robots but I'll make a few adjustments in your circuitry and you'll be okay, just try to be calm now, it's a simple adjustement.
+
+[23:57]
