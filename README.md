@@ -292,31 +292,29 @@
 
 **N°2:** [??? 23:39]
 
-**Long John:** We are approaching a magnetic storm! I know that can be rough on bio-robots but I'll make a few adjustments in your circuitry and you'll be okay. Just try to be calm now, it's a simple adjustement.
+**Long John:** We are approaching a magnetic storm! I know that can be rough on bio-robots but I'll make a few adjustments in your circuitry and you'll be okay, just try to be calm now, it's a simple adjustement. Mmh, okay, okay, done! How much is 3,243,749 multiplied by 9,743,301?
 
-**Long John:** Mmmh. Okay [Okay done! ??? 24:02] How much is 3,243,749 multiplied by 9,743,301 ?
-
-**N°2:** Twenty-One!
+**N°2:** 21!
 
 **Long John:** That's close enough.
 
-**Parrot:** Stupid! If brains were dynamite you wouldn't have enough to blow your nose Long John!
+**Parrot:** Stupid! If brains were dynamite you wouldn't have enough to blow your nose, Long John!
 
 **Long John:** All right! Which one of you turned that plastic bird back on?
 
 **Parrot:** Kwaaak! You don't turn me on and that's for sure!
 
-**Long John:** Grrr, one of these day I'm gonna have a boiled parrot stew. [*mumble*] You bio-robots pay attention to me now. Program! Your job is to get that map from commander Smollett. Just remember, I'm your master and you're not allowed to take orders from anybody else! There will be no mistakes and no failures, is that clear?
+**Long John:** Grrr, one of these day I'm gonna have a boiled parrot stew. [*mumble*] You bio-robots pay attention to me now. Program! Your job is to get that map from commander Smollett. Just remember, I am your master and you are not allowed to take orders from anybody else! There will be no mistakes and no failures, is that clear?
 
 **N°2, 3 and 4:** We hear and obey you!
 
-**Long John:** By all rights that treasure is mine ; I inherited Captain Flint's command and his treasure as well! It isn't just gold, whoever owns that treasure can become the master of the whole universe.
+**Long John:** By all rights that treasure is mine; I inherited Captain Flint's command and his treasure as well! It isn't just gold, whoever owns that treasure can become the master of the whole universe.
 
 **N°2, 3 and 4:** Wow that's impressive!
 
 **Long John:** I don't like to brag but I got a natural aptitude for the job. I wanted to be master of the universe all my life. I've made a lot of duels and I deserve the job. Now it's up to you, what say you?
 
-**N°4:** You can depend on us no to sell you John Silver.
+**N°4:** You can depend on us no to fail you John Silver.
 
 **Long John:** Give me your hand on it!
 
@@ -391,13 +389,15 @@
 
 **Smollett:** There isn't very much we can do now Filipe. We can't run the ship by ourselves. We'll pretend we know nothing and we'll keep our eyes open but above all we must not let that treasure map fall into Long John Silver's hands.
 
+**Parrot:** [??? 31:42]
+
 ============
 
 **Smollett:** All hands prepare for touchdown!
 
 **Smollett:** [*Through a speaker*] Secure your positions fasten your seat belts and observe the no smoking lights. Stand by retro Rockets, prepare for countdown. 10! 9! 8! 7! 6! 5! 4! 3! 2! 1!
 
-**Smollett:** Touchdown accomplished 1pm Monday April 4 25 81. The Hispaniola has landed safely on Treasure Planet, wish us luck!
+**Smollett:** Touchdown accomplished 1 PM Monday April 4 25 81. The Hispaniola has landed safely on Treasure Planet, wish us luck!
 
 ============
 
@@ -415,7 +415,7 @@
 
 **Long John:** Now come on, men!
 
-**Parrot:** Krrrraaaa! Not so fast Long John Silver, you still have to reckon(???) with me!
+**Parrot:** Krrrraaaa! Not so fast Long John Silver, you still have to reckon with me!
 
 **Long John:** What are you talking about? Hey!
 
@@ -431,7 +431,7 @@
 
 **N°2:** [*panting*]
 
-**Parrot:** (??? 34:26) fast it may be a photo finish folks!
+**Parrot:** Stray over the pack but tiring fast, it may be a photo finish folks!
 
 **N°3:** [*trumpet panting*]
 
@@ -457,7 +457,7 @@
 
 **Parrot:** Kwaaa, you'll never get it Long John you might as well give up! Aaah! On second thought I'll give up. [*screams*]
 
-**Long John:** Hin hin! Ooooh? Grr, it's a fake! Captain Smollett (??? 35:57)star map on me and gave me a star map to the movie stars on the Beverly Hills!
+**Long John:** Hin hin! Ooooh? Grr, it's a fake! Captain Smollett switched star maps on me and gave me a map to the movie stars on the Beverly Hills!
 
 **Parrot:** I don't no about you but I'm getting out of here, ciao!
 
@@ -471,15 +471,9 @@
 
 **Parrot:** It was our greed and our lust for power that got us into this situation you know? Waaah!
 
-**Long John:** 
+**Long John:** This is more than I bargained for, those fiery monsters must have been trained to protect Captain Flint's treasure.
 
-[37:25]
-
-RAW YOUTUBE AUTOMATIC SUBTITLES : [Music]
-37:23
-and this is more than I bargained for
-37:29
-those fiery monsters must have been trained to protect Captain Flint's treasure [Music]
+RAW YOUTUBE AUTOMATIC SUBTITLES :
 37:38
 oh the Magnus will it help us I'll share the treasure with you 50 50. Commander
 37:44
