@@ -292,6 +292,535 @@
 
 **N°2:** [??? 23:39]
 
-**Long John:** We are approaching a magnetic storm! I know that can be rough on bio-robots but I'll make a few adjustments in your circuitry and you'll be okay, just try to be calm now, it's a simple adjustement.
+**Long John:** We are approaching a magnetic storm! I know that can be rough on bio-robots but I'll make a few adjustments in your circuitry and you'll be okay. Just try to be calm now, it's a simple adjustement.
 
-[23:57]
+**Long John:** Mmmh. Okay [Okay done! ??? 24:02] How much is 3,243,749 multiplied by 9,743,301 ?
+
+**N°2:** Twenty-One!
+
+**Long John:** That's close enough.
+
+**Parrot:** Stupid! If brains were dynamite you wouldn't have enough to blow your nose Long John!
+
+**Long John:** All right! Which one of you turned that plastic bird back on?
+
+**Parrot:** Kwaaak! You don't turn me on and that's for sure!
+
+**Long John:** Grrr, one of these day I'm gonna have a boiled parrot stew. [*mumble*] You bio-robots pay attention to me now. Program! Your job is to get that map from commander Smollett. Just remember, I'm your master and you're not allowed to take orders from anybody else! There will be no mistakes and no failures, is that clear?
+
+**N°2, 3 and 4:** We hear and obey you!
+
+**Long John:** By all rights that treasure is mine ; I inherited Captain Flint's command and his treasure as well! It isn't just gold, whoever owns that treasure can become the master of the whole universe.
+
+**N°2, 3 and 4:** Wow that's impressive!
+
+**Long John:** I don't like to brag but I got a natural aptitude for the job. I wanted to be master of the universe all my life. I've made a lot of duels and I deserve the job. Now it's up to you, what say you?
+
+**N°4:** You can depend on us no to sell you John Silver.
+
+**Long John:** Give me your hand on it!
+
+**Smollett:** [*Through a speaker*] Attention all hands, attention all hands! Emergency one, emergency one! We are entering the magnetic storm, secure your posts and hang on, it's gonna be [??? 25:32]
+
+============
+
+**Smollett:** Stand by your posts and try not to panic, men. Steady!
+
+**Filipe:** Oooooh! Commander, what's happening?
+
+**N°2:** [*pain screams*]
+
+============
+
+**Filipe:** Commander? Commander Smollett? Where am I? How did I get here? You, sir. Could you help me please? And don't know where or who I am.
+
+**Smollett:** Your name is Jim Hawkins
+
+**Filipe:** Oh, Hawkins. And you?
+
+**Smollett:** I'm Captain Smollett of the Hispaniola and you're my cabin boy of Treasure Island Fame by Robert Louis Stevenson. Welcome to the 17th century. Now that you know who and where you are, suppose you report back to duty all right?
+
+**Filipe:** I- I don't understand.
+
+**Smollett:** Neither do I but I'll try to explain it to you. The magnetic storm has thrown us back through the fourth dimension and into the 17th century. We are now existing in another spatial continuum. I'm sure you'll join me in the devout hope that this is merely a temporary condition.
+
+**Filipe:** I'm not sure I understand.
+
+**Smollett:** There are more things in Heaven and Earth than are dreamed of in your philosophy Filipe.
+
+**Filipe:** Uh Hawkins sir, Jim Hawkins.
+
+**Smollett:** Whatever.
+
+**Filipe:** Oh, what are those?
+
+**Filipe:** [*trembling voice*] Ooooh! Ooh, oooh! Commander, Commander!
+
+**Smollett:** [*humming music*] Just ignore them, Filipe. [*continues humming*]
+
+**Long John:** [*evil laugh*]
+
+**Parrot:** [*kwak of fear*]
+
+**N°2, 3 and 4:** [*fear noises*]
+
+**Black Dog:** Oh hell no, please! Commander, uh, see if these fresh batteries will help. [*pain screams*]
+
+**Filipe:** [*pain screams*]
+
+**Smollett:** Good work Filipe, we're going back to real time now.
+
+============
+
+
+**Smollett:** Attention all hands! Secure all positions, resume normal operations.
+
+**Black Dog:** Filipe, you saved my life.
+
+**Filipe:** Mmmh.
+
+**Black Dog:** No, you risked your own life to save mine. Thank you Filipe.
+
+**Filipe:** Mmmh.
+
+**Black Dog:** My friend, I'll devote my life to you.
+
+============
+
+**Filipe:** Commander what are we gonna do about this? We have a gang of pirates running our ship.
+
+**Smollett:** There isn't very much we can do now Filipe. We can't run the ship by ourselves. We'll pretend we know nothing and we'll keep our eyes open but above all we must not let that treasure map fall into Long John Silver's hands.
+
+============
+
+**Smollett:** All hands prepare for touchdown!
+
+**Smollett:** [*Through a speaker*] Secure your positions fasten your seat belts and observe the no smoking lights. Stand by retro Rockets, prepare for countdown. 10! 9! 8! 7! 6! 5! 4! 3! 2! 1!
+
+**Smollett:** Touchdown accomplished 1pm Monday April 4 25 81. The Hispaniola has landed safely on Treasure Planet, wish us luck!
+
+============
+
+**Long John:** Excuse me Commander? Now that we've reached our destination, may I ask what we're looking for?
+
+**Smollett:** Yes, this is a mineral exploration.
+
+**Long John:** Coal, oil? Stick them up! And now with your permission Commander Smollett I'll relieve you of the responsibility of that treasure map.
+
+**Smollett:** You!
+
+**Long John:** Thank you Commander for taking care of it for me. At last it's mine and I shall be Master of the Universe!
+
+**N°2, 3 and 4:** Uh!
+
+**Long John:** Now come on, men!
+
+**Parrot:** Krrrraaaa! Not so fast Long John Silver, you still have to reckon(???) with me!
+
+**Long John:** What are you talking about? Hey!
+
+**Parrot:** Thanks for taking care of it for me long John!
+
+**Long John:** You dirty bird! Oh that makes me so mad. All right you scum! After that parrot and don't come back without it!
+
+**Parrot:** It's hard to fly in this heavy atmosphere and I'm not really built for running. Oh boy. Taxi taxi! Oh there's never one round when you need one, krraaa!
+
+**N°2, 3 and 4:** [*panting*]
+
+**Parrot:** How about that, I'm running 10 seconds ahead of the world's record! I may be the new champion on Formula One parrots.
+
+**N°2:** [*panting*]
+
+**Parrot:** (??? 34:26) fast it may be a photo finish folks!
+
+**N°3:** [*trumpet panting*]
+
+**Parrot:** [*laugh*]
+
+**N°2, 3 and 4 and Long John:** [*panting*]
+
+**Parrot:** Bravo, congratulations!
+
+**N°3:** Thank you.
+
+**Parrot:** You came in second and on behalf of the entire judging committee I'd like to present you with a token of our esteem. Please limit your acceptance speech to one minute.
+
+**N°3:** I just don't know what to say I just want to thank all the little people who made this honor possible.
+
+[*explosion*]
+
+**Long John:** Now then I'll trouble you for my treasure map.
+
+**Parrot:** Right on target!
+
+**Long John:** You refugee from a badminton game, hand over that treasure map right now!
+
+**Parrot:** Kwaaa, you'll never get it Long John you might as well give up! Aaah! On second thought I'll give up. [*screams*]
+
+**Long John:** Hin hin! Ooooh? Grr, it's a fake! Captain Smollett (??? 35:57)star map on me and gave me a star map to the movie stars on the Beverly Hills!
+
+**Parrot:** I don't no about you but I'm getting out of here, ciao!
+
+**Long John:** I think we have a problem.
+
+**N°2, 3 and 4:** [*panic screams*]
+
+============
+
+**N°3:** It's a tough life being a cartoon character yuk! Why couldn't I get a nice situation comedy?
+
+**Parrot:** It was our greed and our lust for power that got us into this situation you know? Waaah!
+
+**Long John:** 
+
+[37:25]
+
+RAW YOUTUBE AUTOMATIC SUBTITLES : [Music]
+37:23
+and this is more than I bargained for
+37:29
+those fiery monsters must have been trained to protect Captain Flint's treasure [Music]
+37:38
+oh the Magnus will it help us I'll share the treasure with you 50 50. Commander
+37:44
+what are we gonna do I know I'll deploy the mobile automated laser guns nothing
+37:49
+can stand up against them
+38:00
+before [Music]
+38:20
+no no no no cease firing immediately hmm the laser
+38:26
+energy is causing the monsters to multiply I'll try the heavy gravity energy absorber
+38:32
+oh wait just a minute Commander excuse me but the crew's still out on the surface and they'll all be held away
+38:38
+don't worry the monsters will be held away too the crew will be perfectly safe
+38:44
+we have to prevent those monsters from taking over the ship
+38:51
+I didn't come this far just to be foiled and frustrated you hear me I've come for
+38:57
+Captain French treasure and I'm not leaving without it if you are near the treasure you shall die
+39:05
+oh my gosh I recognize that voice it's Nebuchadnezzar it's Nebuchadnezzar for
+39:11
+once you're right you offspring of a rotten egg it is him tell me John who is
+39:18
+this Nebuchadnezzar he's an invincible computer robot placed here by Captain Flint obviously he's the one responsible
+39:25
+for those monsters you mean they're controlled by a computer right my Nebuchadnezzar he irradiates the lava
+39:32
+and creates the fire monsters in it and then he controls their movements by generating electromagnetic energy he's
+39:38
+awful if you don't know the secret code you will die of course that's it the
+39:45
+secret code what do you mean we can meet Nebuchadnezzar obey us if we give him Captain Flint's secret code he's
+39:52
+programmed to take orders from anybody who's able to give him Captain Flint's secret command what is the command it
+39:58
+was an invisible command something like this 15 men on a Dead Man's Chest yo no
+40:04
+that's not it let me see what was that ah not please I'm sorry Commander but I
+40:12
+want music appreciation they said I was tune fully are you positive the
+40:17
+secret command is a musical one hmm yeah I remember that was Captain Flint fond
+40:24
+of Opera was he ever he was so crazy about Opera he drove his body Giuseppe
+40:31
+Verdi was his favorite morning noon and night that's all we ever heard day after day Giuseppe Verdi
+40:39
+Giuseppe Verdi that's it
+40:45
+the code I'll bet it's the quartet from Giuseppe
+40:51
+Verdi's well-known opera titled Nebuchadnezzar it's worth a try anyway let's sing it
+41:02
+love is [Music]
+41:10
+[Applause] [Music]
+41:18
+because
+41:25
+[Music]
+41:36
+foreign [Music]
+42:07
+foreign [Music]
+42:34
+[Applause] okay
+42:40
+Japan [Music]
+43:05
+[Music] I am your humble servant I will be your
+43:12
+every man I await your orders Nebuchadnezzar grab that boy hold him
+43:19
+until I command you to release him come in the smallest help foreign [Laughter]
+43:28
+the only way you're going to get this boy back alive again is by seeing to it then I get back home with my treasure
+43:35
+[Music] ah Captain Flint love these Crystal
+43:41
+mountains they were his favorite hideout [Music]
+43:49
+Commander smaller dish helpless as long as I have the boy foreign
+44:05
+he's lucky he wound up and Flint's lavatory
+44:14
+but set up ahead Long John
+44:19
+that's Boot Hill ah ah yeah yeah
+44:30
+why do you call it Boot Hill I don't see anything but hats oh well you know
+44:35
+Captain Flint he always had a twisted sense of humor you have to admit he was always great
+44:41
+fun at parties though [Music]
+44:47
+Captain Solace following us along John turn the boy loose and you can have the Blasted treasure he means business John
+44:56
+Commander try to hit the robot's computer control module it's in his head don't worry boy I'll get him
+45:03
+protect yourself [Music]
+45:10
+[Applause] [Music]
+45:28
+foreign
+45:35
+[Music]
+45:55
+if you don't want this boy's throat cut you'll hand that treasure map over to me right now
+46:01
+I have the map here bring the boy to me and I'll give it to you impossible the
+46:08
+Commander's on top of both those mountains at once I'm waiting Long John Silver as soon as
+46:14
+you bring Philip to me the treasure map is yours what's this there's two of him how am I
+46:21
+supposed to know which one I should choose I guess I'll just flip a coin okay it's the one on the left no the
+46:28
+left ones are fake okay go ahead nobody listens to me I
+46:36
+tried to warn you you'll be sorry Long John alright silver I know when I'm beat
+46:41
+so take your treasure map ah you're a smart man Commander Smollett
+46:46
+the treasure is mine at long last ah let's see now where did Flint bury it no
+46:53
+no the whole thing was just an optical illusion this is what you were looking for Long
+46:59
+John I wonder how the commander pulled that one off [Laughter]
+47:06
+aha now I understand how the whole illusion works
+47:12
+I thought so it's nothing more than a visual echo of my real image it works
+47:17
+like a mirror except it's 3D Commander small that's pretty smart he found the
+47:22
+exact spot where there's an optical Echo as well as a Sonic one our Long John Silver got was a treasure
+47:29
+maps Echo that's pretty good done in by an echo oh how embarrassing
+47:36
+I'm not gonna give up that easy though the power's Just Begun I have a plan
+47:42
+Boys Follow Me [Applause] [Music]
+47:47
+[Applause] [Music] [Applause] [Music]
+47:54
+don't be alarmed by anything you see Philippe they're only optical illusions
+48:00
+[Music]
+48:07
+they're 3D holographs set up to scare us away from the treasure the working Commander I'm scared
+48:14
+we're almost there lad
+48:23
+just ignore them Felipe oh
+48:29
+so where do we go from here Commander we take the anti-gravity elevator
+48:35
+[Music]
+48:41
+[Applause]
+48:46
+foreign [Music]
+49:01
+more optical illusions right sir no actually those happen to be real ribbons
+49:08
+[Music] what have you done with Commander
+49:14
+Smallwood [Music]
+49:19
+foreign [Music]
+49:58
+ignore and believe just ignore it that's easy to say
+50:03
+Commander but oh my gosh you don't fool me why don't you give up
+50:12
+enough of this bring my commander back you handled that well belief
+50:20
+you almost had me beautiful women have always been a weakness of mine
+50:25
+[Music] Commander That's No Illusion it's Captain Flint's ghost
+50:31
+have ignored all my warnings consumed by your Greed for my treasure now you shall
+50:39
+pay dearly for your calling take deep breaths and enjoy them because they will
+50:44
+be the last you will ever breathe fools [Laughter]
+50:51
+[Applause]
+50:57
+[Music] oh [Music] Lord
+51:10
+wow look at that Commander hmm yes Philly it's quite an awesome
+51:18
+sight all right excuse me Commander don't be in such a hurry thanks for
+51:24
+leading me to my treasure Silva get out of here if you value your life at all
+51:29
+get out of here right now silver odd bless your head from your shoulders no need to threaten me Commander I have no
+51:37
+desire to remain here with you any longer but if you don't mind I'll take my treasure with me and I'll leave you
+51:43
+here to keep Captain Flint's ghost company
+51:49
+oh no
+51:56
+Commander he walked us in why we'll never get out of here
+52:11
+that's it Commander you set off the mechanism that opens the trap door
+52:17
+hmm I better let you go first believe try to head off one John Silver
+52:24
+wow [Applause] [Music]
+52:37
+wow wow wow wow wow
+52:42
+wow wow wow wow wow
+52:52
+don't just stand there after them they'll get away with the treasure [Music]
+52:59
+[Applause] it's too late to try and catch them now the Hispaniola is on its way back home
+53:06
+and we've been left marooned on Treasure Planet [Music]
+53:16
+I've lost count of the days we've been marooned here the food is all gone the commander hasn't spoken a word he just
+53:23
+brewed staring into space the silence is broken only by the whimpering of the parrot whose batteries
+53:29
+are running low foreign there's nothing we could do except wait for the end to come
+53:35
+[Music]
+53:43
+[Applause] ah a ship a ship's coming in it's the
+53:50
+Espanola [Music]
+53:58
+At Your Service Commander Smollett that's black dog I wonder what happened
+54:03
+the ship and the treasure are all yours Master Philippe it was the very least I could do for you
+54:11
+lad you saved my life when those electromagnetic monsters were about to do me in I caught Long John and the
+54:18
+others off guard and I locked them up in the break you never made me feel like I was just a
+54:25
+robot no you made me feel human and I appreciate it
+54:31
+Black Dog you're more than human Commander Smollett I'm happy to report
+54:37
+the Hispaniola his ship shape and ready we can blast off at any time sir come
+54:42
+aboard and assume your command you may prepare for immediate liftoff
+54:48
+destination Earth
+55:03
+inside this container are no diamonds no platinum gold or silver but something
+55:08
+far more precious it is a modern Noah's Ark when Nature began to die and give way to
+55:15
+concrete and steel Flint gathered up all the natural wonders of Earth distilled them and
+55:20
+sealed them inside this great artificial Jewel I can only imagine the Wonders it
+55:27
+contains Because by the time I was born nature had disappeared from Earth and I
+55:32
+had never seen it I had heard stories about grass flowers
+55:38
+trees and such I'd heard about birds and butterflies forests filled with
+55:44
+beautiful animals of all descriptions and as I gazed at Flint's treasure
+55:49
+I wondered if the stories were true and if someday I would actually see the
+55:55
+precious Gifts of nature supposedly preserved inside the jewel
+56:00
+s [Music]
+56:17
+falling into a black hole you can thank me for this I sabotaged
+56:22
+your navigation computer and aimed you into the black hole to prove that nobody gets the best of Long John Silver I
+56:28
+should have left you behind on Treasure Planet you villain that was my one big mistake no your one big mistake wasn't
+56:35
+defying me that treasure belongs to me and if I can't nobody can
+56:45
+oh no
+56:50
+oh
+56:58
+[Music]
+57:07
+[Music] wow you must escape and forget about
+57:14
+that bastard treasure just save yourself believe the escape capsule can only carry 450
+57:23
+pounds and the treasure itself weighs that much
+57:30
+[Applause]
+57:38
+the treasure I had to make a choice because the escape capsule couldn't
+57:44
+carry both and I had to decide immediately there was no choice the treasure would
+57:50
+restore the glory of Earth compared to that my life was nothing
+58:00
+I launched the treasure Jewel earthward I stayed aboard what was left of the Hispaniola and honoring an ancient
+58:07
+tradition I went down with the ship down down into the black hole into an alien
+58:15
+dimension of time and space from which There Is No Escape now Escape
+58:22
+[Music]
+58:33
+of nothingness [Music] but it was worth it
+58:39
+the Escape capsules with its Precious Cargo would arrive on Earth in a few
+58:44
+seconds ocean
+58:50
+farewell you sterile graceless concrete and asphalt monsters
+59:00
+regeneration and Rejuvenation have arrived long life
+59:06
+my beloved Earth [Music]
+59:41
+foreign [Music]
+59:51
+[Applause] [Music]
+1:00:02
+[Music]
+1:00:16
+foreign
+1:00:23
+[Music]
+1:00:51
+foreign
+1:01:23
+[Music]
+1:01:38
+foreign
+1:01:48
+[Music]
