@@ -64,7 +64,7 @@
 
 **Billy:** You wouldn't give me... the Black Spot?! Gahah!!
 
-**Black Dog:** I'm sorry, but you don't give me any choice in this matter, do you know? So, I've [???] you of the power invested in me by our fellow pirates I must now present you with the Black Spot.
+**Black Dog:** I'm sorry, but you don't give me any choice in this matter, do you know? So, by virtue of the power invested in me by our fellow pirates I must now present you with the Black Spot.
 
 **Billy:** NoooOOoOOOoo! DOoOOoon't do iiiit!!
 
@@ -284,7 +284,7 @@
 
 **Long John:** Now cut that out! Report on the condition of your circuitry?
 
-**N°2:** [*what the fuck* 23:27] If I only have all your mother, boys.
+**N°2:** [*what the fuck* 23:27] If I only have your mother, boys.
 
 **N°4:** Take my wife, please.
 
